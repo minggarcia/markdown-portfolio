@@ -1,0 +1,5 @@
+- Knitting
+- Netflix
+- Eating out
+- Coding
+- Super Cycle
